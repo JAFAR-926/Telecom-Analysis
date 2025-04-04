@@ -1,3 +1,4 @@
+![Screenshot 2025-04-03 055431](https://github.com/user-attachments/assets/cc9ec94f-966c-4e4d-a725-f2cdaa9689c1)
 # Telecom-Analysis
 v# Telecommunication Services Analysis in Nigeria  
 
